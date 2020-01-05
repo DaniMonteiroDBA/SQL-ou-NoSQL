@@ -7,4 +7,5 @@ No meio do post surgiu a ideia de criar esta planilha, para que futuramente ela 
 Então te convido para ler os posts e esteja a vontade para ajudar a planilha a crescer e ficar mais completa!
 
 Bjs 
+
 Dani
